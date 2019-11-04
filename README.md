@@ -1,1 +1,3 @@
-# JEE-Main-Weightage-Sheet-Practise-Test-Paper
+<h2> JEE Main Weightage Sheet + Practise Test Paper </h2>
+
+<p><strong>Engineering and Medical</strong> being one of the most competitive exams needs through preparation.&nbsp; <strong>JEE Main Weightage Sheet + Practise Test Paper </strong>promotes exam awareness among aspirants and encourages them to rectify their weakness and build up their strength. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations. This comprehensive book has mainly and deliberately been designed to cater to the long-felt needs of the students studying in college and universities, including the prospective candidates for competitive exams.</p>
